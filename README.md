@@ -1,2 +1,2 @@
 # tubesMSBD
-semoga gk ngulang tahun depan
+Bismillah, A
